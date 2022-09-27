@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ItsmeRobnel
-- 👀 I’m interested in anything about programming
+- 👀 I’m interested in anything about programming | Just a beginner
 - 🌱 I’m currently learning Java 
 - 💞️ I’m looking to collaborate on studying
 - 📫 How to reach me ? Via email robledojohnronnel14@gmail.com
